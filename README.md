@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BeOrNot2Be
+- 👀 I’m interested in blockchainn, pentesting and deep learning.
+- 💞️ I’m looking to collaborate on web3 projects.
+- 📫 How to reach me: timchick.ua@gmail.com.
